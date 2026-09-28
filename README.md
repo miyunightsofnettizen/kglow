@@ -27,7 +27,7 @@ As três palavras escolhidas para representar o festival são:
 
 # Conceito visual
 
-O K-Glow Universe é um festival fictício de K-pop realizado durante dois dias em São Paulo.
+O K-Glow Universe é um festival fictício de K-pop realizado durante dois dias em SP.
 
 A identidade visual mistura:
 
